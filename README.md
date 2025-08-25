@@ -1,5 +1,5 @@
 # 💫 About Me:
-Saya adalah web developer.
+Masih Pemula.
 
 
 ## 🌐 Socials:
